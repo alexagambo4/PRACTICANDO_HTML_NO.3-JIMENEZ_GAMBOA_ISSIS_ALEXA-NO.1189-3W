@@ -63,3 +63,38 @@
 # Ejemplo no.13
 
 ![image](https://github.com/user-attachments/assets/61dacd40-44c2-4c65-b6ef-6b5bf932ef40)
+
+
+# Ejemplo no.14
+
+![image](https://github.com/user-attachments/assets/5e4d4b4f-3d69-4253-8212-e533a9adb41f)
+
+
+# Ejemplo no.15
+
+![image](https://github.com/user-attachments/assets/8fd31714-d2d7-498a-8a64-dcdb7605e7c4)
+
+
+# Ejemplo no.16
+
+![image](https://github.com/user-attachments/assets/04b6404d-f838-4da9-b909-059b1dd82750)
+
+
+# Ejemplo no.17
+
+![image](https://github.com/user-attachments/assets/78c9e92e-74c7-4e62-b340-c5ab79551506)
+
+
+# Ejemplo no.18
+
+![image](https://github.com/user-attachments/assets/945e1a4c-3c5c-46c8-9343-dfa945693a62)
+
+
+# Ejemplo no.19
+
+![image](https://github.com/user-attachments/assets/c6efef80-b2fe-45b5-95fe-3958642b8654)
+
+
+
+
+
